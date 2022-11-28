@@ -1,2 +1,8 @@
-# cof
-Transcrição do Curso Online de Filosofia - Olavo de Carvalho
+# COF - Olavo de Carvalho
+
+**Transcrição do Curso Online de Filosofia**
+
+
+
+
+
